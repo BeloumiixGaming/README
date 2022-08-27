@@ -16,6 +16,8 @@
 # Compte Twitter : @Beloumiix_Gaming 
 # https://twitter.com/beloumiixgaming
 
+# Discord de mon serveur GTA RP : https://discord.gg/ynBG7zGmgx
 # Compte Discord : Alex39#4870 
+
 
 Si vous voulez me joindre, merci de m'envoyer un MP sur Discord ou de me mentionner en commentaire sur Youtube.
